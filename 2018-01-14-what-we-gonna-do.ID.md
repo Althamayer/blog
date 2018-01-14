@@ -1,0 +1,18 @@
++++
+title = "Apa yang Kami Lakukan dan Mengapa"
+date = "2017-12-23"
++++
+
+***Apa yang kami lakukan dan mengapa?***
+
+Dalam maniak blockchain yang sedang berlangsung ada begitu banyak proyek yang nampaknya kurang asli atau bahkan palsu. ICO menjadi alat yang mudah bagi pemula untuk mengumpulkan dana dan karena itu scammers juga akan menyerah untuk mendapatkan uang. Apakah MDL Talent Hub adalah hal yang nyata dengan visi dan rencana pengembangan yang pasti atau hanya mengendarai gelombang kriptoype? Kami percaya kami berdiri di atas tanah yang kokoh dan inilah mengapa.
+
+**Pertama-tama, mengapa kami membutuhkan teknologi blockchain untuk menciptakan aplikasi rekrutmen saja?** 
+
+Kami percaya bahwa sarana talenta pemesanan saat ini sudah usang secara logis dan teknologis. Dengan bantuan teknologi blockchain (serta instrumen dan pendekatan lainnya), kami akan membuat modul bereputasi, sehingga setiap aktivitas pasar dapat dikonsolidasikan dan dilacak. Lebih dari itu, dengan menggunakan Token MDL kami akan menciptakan ekosistem ekonomi, yang akan memungkinkan kami tidak hanya untuk menarik lebih banyak peserta, tapi juga menyebarkan sumber pendapatan. Jadi komisi transaksi akan berkurang dan karenanya kami akan mengalahkan pesaing kami yang memungkinkan.
+
+***Mengapa kami bekerja sama dengan pelaku pasar?***
+
+Ada beberapa alasan. Pertama-tama, kami ingin memulai dengan ceruk pasar dan kami percaya bahwa segmen yang telah kami pilih memerlukan fasilitasi teknologi paling banyak –belum ada mesin pencari komprehensif dan global untuk bakat dan talenta yang diciptakan. Tim kami memiliki pengalaman yang solid di bidang ini dan kami tidak hanya merasakan masalah yang ada, tapi juga bisa melihat cara untuk menyelesaikannya.  
+Kedua, kami percaya bahwa pasar akan tumbuh terus-menerus dalam konteks revolusi industri <a href="https://en.wikipedia.org/wiki/Industry_4.0">revolution 4.0</a>, saat robot dan AI mengambil lebih banyak pekerjaan. Orang-orang kreatif dengan sifat mereka dan kami ingin menyederhanakan monetisasi hobi dan keterampilan mereka dengan bantuan solusi kami.
+Dan yang terakhir,  kami pikir sangat menyenangkan bekerja dengan talenta atau para bakat! Pelaku yang luar biasa dan energinya sangat penting bagi perkembangan manusia, jadi kami ingin lebih dekat dengan sumber kreativitas sebanyak mungkin!
